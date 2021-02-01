@@ -1,2 +1,2 @@
-good
+good time
 
